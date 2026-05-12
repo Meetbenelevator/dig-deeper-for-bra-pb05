@@ -1,4 +1,4 @@
-#  
+#  advanced dig deeper for brainrots Scripts is the best dig deeper for brainrots Script, featuring aimbot and infinite resources. Safe and powerful for
 
 
 
